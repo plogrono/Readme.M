@@ -6,4 +6,3 @@
 * Skillful in Excel, SQL, Python, R, Tableau, and Power BI 📊
 * Always learning, and I'm fast at it 🚀 🦸🏽‍♀️
 
-
